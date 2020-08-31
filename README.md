@@ -1,2 +1,2 @@
 # Hello-milkyway-
-My first steps towards a vast universe - cyberuniverse!
+My first steps towards inter-galactic travel!
