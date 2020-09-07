@@ -10,4 +10,6 @@ Watch flying saucers and other UFOs
 
 Watch high heavens with your eyes
 
-Be part of this beautiful journey
+Experience zero gravity
+
+Be part of this beautiful journey, of a lifetime
